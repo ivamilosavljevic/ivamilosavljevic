@@ -7,5 +7,5 @@
 
 
 
-.................. Iva is looking for internship👀
+.......... currently looking for internship👀
 
