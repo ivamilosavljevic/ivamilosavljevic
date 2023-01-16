@@ -7,5 +7,5 @@
 
 
 
-.......... currently looking for internship👀
+.......... currently looking for an internship👀 
 
